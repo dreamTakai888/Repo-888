@@ -3,7 +3,7 @@
 https://drive.google.com/drive/folders/1SP_XG6jK2UF4MfuzQNSdmBjpt7DUoPCL?usp=sharing
 2.rar, data-main.zip, NKGMobaBasedOnET-master.zip, Python_xlrd.rar, Resume.rar, Unity 5.4.5.rar, Spine.rar
 https://drive.google.com/drive/folders/1iY_H8hE1kAJXPLQRBnV1lVsczQK0lOsK?usp=sharing
-
+Offline Studying.zip, 01-22.zip
 Total Size: 3G
 -Second
 https://drive.google.com/drive/folders/1SP_XG6jK2UF4MfuzQNSdmBjpt7DUoPCL?usp=sharing
