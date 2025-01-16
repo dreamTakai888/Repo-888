@@ -1,7 +1,9 @@
 # Repo-888
 -First
 https://drive.google.com/drive/folders/1SP_XG6jK2UF4MfuzQNSdmBjpt7DUoPCL?usp=sharing
-Thermal Camera Module.part01~part12.rar, Tool1.part1.rar, Tool1.part2.rar, VMware Workstation Pro 17.6.2 Build 24409262 [PeskTop.com].rar, Webyog_SQLyog_13.1.1 [PeskTop.com].rar, xampp-windows-x64-8.2.12-0-VS16-installer [PeskTop.com].rar
+https://pan.baidu.com/s/1y6buzG9EjKF_2LyFaFxH8g?pwd=g8cy
+https://pan.baidu.com/s/1W_48tMreWN_0bjMmQ3QsmQ
+
 -Second
 
 
