@@ -17,6 +17,8 @@ https://drive.google.com/open?id=1woDpBxi9nfsi9F_RJu8sjj-gD_CB7SzJ
 https://drive.usercontent.google.com/download?id=1nPpEVaefz0MrhJVxckMSa80mkQM9NapR&export=download&authuser=0
 https://drive.usercontent.google.com/download?id=1WIY2XqyOJpoplJtbsyPprayxWbWWIp-I&export=download&authuser=0
 
+7. https://drive.google.com/drive/folders/13AMe3DIiUcpIvrBoVZNmCxs5WAAvGFZm
+https://drive.google.com/drive/folders/13ofX3XhmjxtCU5jdqHaDKF_vk_LvFC_F
 
 -Second
 
