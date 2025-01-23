@@ -32,8 +32,8 @@ Extraction code: UCXE
 https://mega.nz/file/LpkAhShC#kyjmg1sLd1YnqbdL30L0J4BwJutmrejPqIKh2_6uuKc
 
 8.
-https://mega.nz/#F!lHoXQRga!s6P73-qfhOQXQMdsn9fiIA
-RAR Passwd：恒
+https://github.com/MaximFonariuc/Dragon-Nest-Mobile-Server
+https://github.com/MaximFonariuc/Dragon-Nest-Mobile-Client
 
 -Second
 
