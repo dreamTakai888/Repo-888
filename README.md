@@ -63,7 +63,6 @@ pass：fqjc
 https://pan.baidu.com/s/1kGwwWBnc6cDoq_7cyVoD3g?pwd=ucxe
 pass: UCXE
 https://mega.nz/file/eUdzxQjD#LQikZwrPcB3qBObCYuNtmSS5DW5_hK-XLkJqvWPkMlU
-https://anonfiles.com/t6z8hd62q0/GoKart-1-master_zip
 https://mega.nz/file/bME2hKzK#1u0jEQgeaZpsEYJw_cmMAYXfau6c5e7zpj3KANnJ9g8
 
 -Second
