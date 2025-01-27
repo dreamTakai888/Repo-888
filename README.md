@@ -27,8 +27,6 @@ https://mega.nz/#!x5sSEYTT!uV5TraiOiGtnBYDm-858uPcdoxls4_CaBtB8wA6Okco
 https://mega.nz/#!5klyHCYY!zV0IcHNjhpyp3Xw74E0YXoyecNyu1r3sSP5wz214IHs
 
 7.
-https://pan.baidu.com/s/1kGwwWBnc6cDoq_7cyVoD3g?pwd=ucxe 
-Extraction code: UCXE
 https://mega.nz/file/LpkAhShC#kyjmg1sLd1YnqbdL30L0J4BwJutmrejPqIKh2_6uuKc
 
 8.
