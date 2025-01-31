@@ -22,13 +22,15 @@ https://pan.baidu.com/s/17tyRQzk86sy7LlPGt8Dt8A
 -Ship Online
 https://pan.baidu.com/s/1noobrcsuftzfrtQo6gH8MQ 
 password：fqjc
+-Glory of King
+https://pan.baidu.com/s/12srJxnmX0JK041s9nls10g?pwd=1osk
 
-5.
+6.
 -Super Dungeon Light
 https://drive.google.com/file/d/16JRimix30iiAEZk6nRHiouLJT8Wc2GSC/view
 PassCode : http://www.9miao.com/
 
-6.
+7.
 https://www.mediafire.com/folder/aijrmatlzx23g/ArchLord
 https://mega.nz/file/eUdzxQjD#LQikZwrPcB3qBObCYuNtmSS5DW5_hK-XLkJqvWPkMlU
 https://www.dropbox.com/s/khdrgrv01jsaa50/winnerslobby.live.zip?dl=0
