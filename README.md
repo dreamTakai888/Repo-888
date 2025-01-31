@@ -30,7 +30,6 @@ PassCode : http://www.9miao.com/
 
 6.
 https://www.mediafire.com/folder/aijrmatlzx23g/ArchLord
-https://mega.nz/file/LpkAhShC#kyjmg1sLd1YnqbdL30L0J4BwJutmrejPqIKh2_6uuKc
 https://mega.nz/file/eUdzxQjD#LQikZwrPcB3qBObCYuNtmSS5DW5_hK-XLkJqvWPkMlU
 https://mega.nz/file/bME2hKzK#1u0jEQgeaZpsEYJw_cmMAYXfau6c5e7zpj3KANnJ9g8
 https://www.dropbox.com/s/khdrgrv01jsaa50/winnerslobby.live.zip?dl=0
