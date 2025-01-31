@@ -21,7 +21,7 @@ password: pubf
 https://pan.baidu.com/s/17tyRQzk86sy7LlPGt8Dt8A
 -Ship Online
 https://pan.baidu.com/s/1noobrcsuftzfrtQo6gH8MQ 
-pass：fqjc
+password：fqjc
 
 5.
 -Super Dungeon Light
