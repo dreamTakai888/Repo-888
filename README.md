@@ -5,6 +5,7 @@ https://drive.google.com/drive/folders/1SP_XG6jK2UF4MfuzQNSdmBjpt7DUoPCL?usp=sha
 -Super Dungeon Light
 https://drive.google.com/file/d/16JRimix30iiAEZk6nRHiouLJT8Wc2GSC/view
 PassCode : http://www.9miao.com/
+-https://www.mediafire.com/folder/ssc7qlk01cfd0/Public+Data
 
 2.
 https://github.com/MaximFonariuc/Dragon-Nest-Mobile-Server
