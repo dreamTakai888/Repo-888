@@ -11,3 +11,5 @@ https://www.mathworks.com/help/install/ug/install-documentation-on-offline-machi
 R2024b_Doc_Windows.iso   13.6GB
 
 -HTTrack
+Be careful set the depth. Ex:3~5
+Set the File type. Ex:Video file, Image File.
