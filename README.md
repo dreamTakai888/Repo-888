@@ -8,6 +8,8 @@ https://drive.google.com/drive/folders/1SP_XG6jK2UF4MfuzQNSdmBjpt7DUoPCL?usp=sha
 -https://downloadly.ir/elearning/video-tutorials/learn-fpga-design-with-vhdl-intel-altera/                Part1-5.      8.4GB
 -https://downloadly.ir/elearning/video-tutorials/hands-on-fpga-project-design-from-scratch-using-verilog/ Part1-2.      1.8GB
 
+https://www.mediafire.com/folder/ssc7qlk01cfd0/Public+Data
+
 -Second
 Pay Source Code
 https://codecanyon.net/item/hidden-words-word-search-game-unity-template/29809176                                                   49
@@ -33,14 +35,3 @@ https://www.codester.com/items/24148/150-material-ui-elements-android-studio    
 https://www.codester.com/items/41878/loops-photo-motion-live-wallpaper-android                                                      30
 
 
-
-
-
-
-
-
-
-
-
-
-https://www.mediafire.com/folder/ssc7qlk01cfd0/Public+Data
